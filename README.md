@@ -1,1 +1,1 @@
-# Chem160Homework6
+# Chem160Homework6 now ready for grading 
